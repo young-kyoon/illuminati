@@ -1,1 +1,1 @@
-# illuminatipedia
+# Illuminatipedia, the Illuminati Encyclopedia
