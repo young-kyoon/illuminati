@@ -1,1 +1,1 @@
-# illuminati
+# illuminatipedia
